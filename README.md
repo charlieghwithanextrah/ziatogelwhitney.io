@@ -1,2 +1,0 @@
-# ziatogelwhitney.io
-ziatogelwhitney.io
